@@ -6,4 +6,4 @@ Price is noise — a reflection of emotion, speculation, and cycles. But underne
 
 The paradox is that freedom in crypto is absolute — and so is the responsibility. There are no reversals, no support lines to call, no safety nets. Just code, keys, and consequences.
 
-The ones who truly understand crypto are not the ones watching charts all day — they are the ones who understand what it means to own something that cannot be taken away.
+The ones who truly understand crypto are not the ones watching charts all day — they are the ones who understand what it means to own something that cannot be taken away. YEs
